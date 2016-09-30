@@ -6,6 +6,3 @@ helooooooo
 ofuenwiufbwr
 fwebgwe
 ungiwebgww
-onwgoweubgowung
-jigiowegweungou wefgweo
-nounwongoewngiurgorbgeou
